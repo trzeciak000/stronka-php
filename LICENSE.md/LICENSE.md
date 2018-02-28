@@ -1,0 +1,1 @@
+wszystkie prawa zastrzeżone
